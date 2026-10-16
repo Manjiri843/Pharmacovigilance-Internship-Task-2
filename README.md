@@ -1,0 +1,1 @@
+# Pharmacovigilance-Internship-Task-2
